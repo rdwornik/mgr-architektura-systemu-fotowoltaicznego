@@ -1,0 +1,1 @@
+# mgr-architektura-systemu-fotowoltaicznego
